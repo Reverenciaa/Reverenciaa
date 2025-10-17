@@ -17,4 +17,4 @@ I am passionate about creating innovative solutions and improving my coding skil
 Feel free to reach out for collaboration or inquiries!
 
 - Email: [christophersonclabios27@gmail.com]
-- LinkedIn: [your LinkedIn URL]
+- LinkedIn: [https://www.linkedin.com/in/christopherson-labios-967705254/]
